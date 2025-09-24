@@ -10,10 +10,10 @@ lizard breath
 
 but only if i know you...like your personality and stuff...
 
-check links
+check links : dni spam followers
 
-🟢 = dniuf :d
+🟢 = dniuid :d
 
-🌙 = dniuparty :s
+🌙 = dniuf :s
 
-⛔ = dniuf & party :[
+⛔ = dniuparty :[
