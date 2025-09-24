@@ -11,3 +11,7 @@ lizard breath
 but only if i know you...like your personality and stuff...
 
 check links
+
+🟢 = dniuf :d
+🌙 = dniuparty :d
+⛔ = dniuf & party :d
