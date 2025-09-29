@@ -12,8 +12,8 @@ but only if i know you...like your personality and stuff...
 
 check links : dni spam followers
 
-🟢 = dniuid :d
+🟢 = iwc or dniuf :d
 
-🌙 = dniuf :s
+🌙 = dniuid :s
 
 ⛔ = dniuparty :[
