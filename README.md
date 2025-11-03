@@ -17,3 +17,5 @@ check links : dni spam followers
 🌙 = dniuid :s
 
 ⛔ = dniuparty :[
+
+[ she'll be a bit confused if you call her rowan at all ]
