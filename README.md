@@ -2,10 +2,15 @@
 ## Basic Info
 my name is elizabeth afton ♡ sys little
 i also go by ↓
+
 lizzy / liz
+
 beth / bethy
-eliz / liza
+
+elise / lisa
+
 lizzy lizard
+
 lizard breath
 
 but only if i know you...like your personality and stuff...
