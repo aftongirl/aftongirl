@@ -1,24 +1,24 @@
 # ‘🐇 ♡ 🌸‚
 ## Basic Info
-my name is elizabeth afton ♡ sys little
+Elizabeth Afton ♡ did/osdd alter
 i also go by ↓
 
-lizzy / liz
+Lizzy / Liz
 
-beth / bethy
+Beth / Bethy
 
-elise / lisa
+Elise / Lisa / Liza
 
-lizzy lizard
+Lizzy-Lizard
 
-lizard breath
+Eza / E
 
 but only if i know you...like your personality and stuff...
 
 check links : dni spam followers
 
-🟢 = iwc or dniuf :d
+🟢 = iwc :d
 
-🌙 = dniuid :s
+🌙 = dniuf / dniuid :s
 
 ⛔ = dniuparty :[
