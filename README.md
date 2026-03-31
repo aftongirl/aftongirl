@@ -1,6 +1,6 @@
 # ‘🐇 ♡ 🌸‚
 ## Basic Info
-[amy : sonic origins](https://www.spriters-resource.com/media/assets/197/199727.png?updated=1755488804)
+![amy : sonic origins](https://www.spriters-resource.com/media/assets/197/199727.png?updated=1755488804)
 
 Elizabeth Afton ♡ did/osdd alter
 i also go by ↓
