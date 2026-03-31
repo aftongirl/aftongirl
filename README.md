@@ -1,6 +1,6 @@
 # ‘🐇 ♡ 🌸‚
 ## Basic Info
-![amy : sonic origins](https://www.spriters-resource.com/media/assets/197/199727.png?updated=1755488804)
+![amy : sonic origins](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/e28e6108-f820-4854-987f-41334442dfb6/dgysosh-8f3ea487-3608-41e5-a849-1b10a0514e97.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiIvZi9lMjhlNjEwOC1mODIwLTQ4NTQtOTg3Zi00MTMzNDQ0MmRmYjYvZGd5c29zaC04ZjNlYTQ4Ny0zNjA4LTQxZTUtYTg0OS0xYjEwYTA1MTRlOTcuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.cfSNjQ8r8F9pRHlDAKo_bsSX5_KpvSVqybo54iPMJLU)
 
 Elizabeth Afton ♡ did/osdd alter
 i also go by ↓
