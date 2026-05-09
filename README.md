@@ -18,6 +18,7 @@ Eza / E
 but only if i know you...like your personality and stuff...
 
 check links : dni spam followers
+dni stupid nicknames, if we arent friends i will not find them funny
 
 (clown here) Statuses
 
