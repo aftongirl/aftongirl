@@ -1,6 +1,6 @@
 ‘🐇 ♡ 🌸‚
 # Circus Girl
-# (clown here) Basic Info
+(clown here) Basic Info
 
 Elizabeth Afton ♡ did/osdd alter
 i also go by ↓
